@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SlendermanRu
 - 👀 I’m interested in games
 - 🌱 I’m currently learning in school
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me Discord slendermanRus#2325
 - Im from Russia
 <!---
